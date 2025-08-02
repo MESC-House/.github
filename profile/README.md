@@ -43,6 +43,6 @@ Our free workshops spark Damanhour’s tech enthusiasm, engaging students and ed
 ---
 
 ## Contact 📬
-Reach out to join our mission or learn more about our services! Email us at contact@mesc-house.com or follow our updates on TikTok, Instagram, and X. Stay tuned for our community workshops and tech meetups in Damanhour, where we spark innovation and connection!
+Reach out to join our mission or learn more about our services! Email us at meschouse@gmail.com or follow our updates on TikTok, Instagram, and X. Stay tuned for our community workshops and tech meetups in Damanhour, where we spark innovation and connection!
 
 Join MESC-House to unlock your potential, connect with a passionate community, and shape the future of tech in Egypt! 🚀
